@@ -8,4 +8,5 @@ My Youtube channel - https://www.youtube.com/channel/UCzf-CW75Ae9nzKvJSziZKRA
 
 ![image](https://github.com/DemosByYash/Social_Media_Pages/assets/154538266/bf7fa240-7e6f-4ccd-ab96-431e4979e4da)
 
-![image](https://github.com/DemosByYash/Social_Media_Pages/assets/154538266/b99213fb-02af-402e-a3f8-91f89e3b47b5)
+![image](https://github.com/DemosByYash/Social_Media_Pages/assets/154538266/8f411f59-0708-4081-82d9-c146fe3175f4)
+
